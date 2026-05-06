@@ -1,1 +1,3 @@
-# UTS_Chairil-Septa-M_14022300004_6B-BIS
+Nama : Chairil Septa Mi'raj
+NIM : 14022300004
+Kelas : 6B-BIS
